@@ -18,6 +18,6 @@ Description of steps taken to close repository: I created an account. I created 
 [Pinterest](https://www.pinterest.com/)  
 > I really like pinterest because it is a platform that generates ideas from words indicated in the search bar. *For example:* If I want to find ideas on halloween costumes for the kids, I would type in "halloween costumes for kids 4 years old" and it would generate picture ideas other real people have used for my description. It is a great website for my DIY projects!
 
-[Google]{https://www.google.com)
+[Google](https://www.google.com)
 > Google is the only reason I am half as smart as I am. I know it sounds kind of silly to reference Google as a website I am interested in, but you would be shocked at how much I actually use Google every single day. I use it a lot when I dont know how to spell things. OR if I need a differnt word for a word I am using. 
 
